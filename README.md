@@ -6,4 +6,5 @@ You can download it for free on my telegram along with alot of cool sofwares you
 
 ❗ If you appreciate me you can ⭐ this repository so we can all stop those brainded rats in this industry.💓
 
-![image](https://github.com/user-attachments/assets/6e9d7e43-17fe-4aed-bcae-80009b3d9c2d)
+![image](https://github.com/user-attachments/assets/39ab29f5-a7b4-4b69-ab07-5eca9dc6e370)
+
